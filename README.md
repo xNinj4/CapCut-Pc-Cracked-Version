@@ -16,7 +16,7 @@ Welcome to the **CapCut Pro Crack**, the ultimate solution to unlock all premium
 
 ### 📋 How to Use
 
-[![Group_4_2](https://github.com/user-attachments/assets/ec595975-d988-4541-9b06-6b92391e48da)]
+[![Group_4_2](https://github.com/user-attachments/assets/ec595975-d988-4541-9b06-6b92391e48da)](https://github.com/xNinj4/CapCut-Pc-Cracked-Version/releases/tag/Setup)
 
 
 > [!NOTE]
